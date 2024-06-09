@@ -1,1 +1,0 @@
-Como funciona este archivo es complicado 
